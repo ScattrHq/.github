@@ -12,7 +12,7 @@
 This easy-to-use tool makes it simple to post your articles in seconds across multiple platforms, and helps you reach a wider audience with ease.
 
 
-[Join Waitlist](https://scattr.io/?ref=github_profile)
+[Join Scattr](https://scattr.io/?ref=github_profile)
 
 
 Scattr is the perfect tool for content creators who want to get their word out there. With Scattr, you can cross post your articles and blog posts to different platforms with ease. You can also cross blog, meaning you can post your content on multiple blogs at once. Scattr is the perfect way to get your content seen by more people and grow your audience.
